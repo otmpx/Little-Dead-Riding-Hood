@@ -1,1 +1,0 @@
-Ur moms a hoe
